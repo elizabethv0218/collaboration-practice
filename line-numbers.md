@@ -8,7 +8,7 @@
 #### 8
 #### 9 Github is really good awesome.
 #### 10
-#### 11 Rice
+#### 11 I like rice and vanilla ice cream.
 #### 12
 #### 13
 #### 14
